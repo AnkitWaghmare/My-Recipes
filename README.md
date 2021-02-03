@@ -1,1 +1,1 @@
-# My-Recipes
+# 2-minutes-Maggi
